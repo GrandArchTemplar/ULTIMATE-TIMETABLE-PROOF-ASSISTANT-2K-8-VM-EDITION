@@ -1,7 +1,9 @@
 # ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K-8-VM-EDITION
 ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K!8-VM-EDITION for safety soul deviation
+
 ПАРЫ СОВМЕСТНЫЕ ЕСЛИ НЕ УКАЗАНО ИНАЧЕ 
 
+ЕСЛИ НЕ НАПИСАНО ЧТО НЕ УЧИМСЯ ЗНАЧИТ РАСПИСАНИЕ НЕСОСТАВЛЕНО А НЕ ЗНАЧИТ ЧТО МЫ НЕ УЧИМСЯ
 ## Понедельник
 ### Чётная неделя
 ### Нечётная неделя
