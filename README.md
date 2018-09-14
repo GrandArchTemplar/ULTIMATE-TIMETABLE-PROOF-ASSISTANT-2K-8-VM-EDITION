@@ -27,6 +27,8 @@ ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K!8-VM-EDITION for safety soul deviation
 ## Суббота
 ### Чётная неделя
 ### Нечётная неделя
+НЕ УЧИМСЯ
 ## Воскресенье
 ### Чётная неделя
 ### Нечётная неделя
+НЕ УЧИМСЯ
