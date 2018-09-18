@@ -1,5 +1,5 @@
 # ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K-8-VM-EDITION
-ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K!8-VM-EDITION for safety soul deviation
+ULTIMATE-TIMETABLE-PROOF-ASSISTANT-2K!8-VM-EDITION because ponieważ jestem pieprzony
 
 ПАРЫ СОВМЕСТНЫЕ ЕСЛИ НЕ УКАЗАНО ИНАЧЕ 
 
